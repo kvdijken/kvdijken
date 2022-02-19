@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kvdijken
+- 👀 I’m interested in electronics, microscopy, nature, physics, mathematics. I am also running the F Homelab channel on Youtube.
